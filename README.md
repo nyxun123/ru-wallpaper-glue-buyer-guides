@@ -6,8 +6,14 @@ Official site: https://kn-wallpaperglue.com/ru/
 
 GitHub Pages: https://nyxun123.github.io/ru-wallpaper-glue-buyer-guides/
 
+Russian procurement route guide: https://nyxun123.github.io/ru-wallpaper-glue-buyer-guides/procurement-route.html
+
 Core destination pages:
 
 - https://kn-wallpaperglue.com/ru/products/bulk-wallpaper-adhesive/
 - https://kn-wallpaperglue.com/ru/oem/
 - https://kn-wallpaperglue.com/ru/technical-documents/wallpaper-adhesive/
+- https://kn-wallpaperglue.com/ru/promo/
+- https://kn-wallpaperglue.com/ru/solutions/russia-cis-wallpaper-glue/
+- https://kn-wallpaperglue.com/ru/products/999-universal-wallpaper-adhesive-powder/
+- https://kn-wallpaperglue.com/ru/solutions/wallpaper-glue-fob-exw-incoterms-forwarder-russia/
