@@ -12,7 +12,7 @@ Core destination pages:
 
 - https://kn-wallpaperglue.com/ru/products/bulk-wallpaper-adhesive/
 - https://kn-wallpaperglue.com/ru/oem/
-- https://kn-wallpaperglue.com/ru/technical-documents/wallpaper-adhesive/
+- https://kn-wallpaperglue.com/ru/technical-documents/
 - https://kn-wallpaperglue.com/ru/promo/
 - https://kn-wallpaperglue.com/ru/solutions/russia-cis-wallpaper-glue/
 - https://kn-wallpaperglue.com/ru/products/999-universal-wallpaper-adhesive-powder/

@@ -19,6 +19,6 @@ Hangzhou KARN New Building Materials Co., Ltd. — китайская фабри
 
 Официальная страница с деталями и формой связи:
 
-https://kn-wallpaperglue.com/ru/technical-documents/wallpaper-adhesive?utm_source=rosfirm&utm_medium=directory_listing&utm_campaign=offsite-seeding-2026q1&utm_content=rosfirm-wallpaper-adhesive
+https://kn-wallpaperglue.com/ru/technical-documents?utm_source=rosfirm&utm_medium=directory_listing&utm_campaign=offsite-seeding-2026q1&utm_content=rosfirm-wallpaper-adhesive
 
 Связанные поисковые фразы: TDS обойный клей, обойный клей порошок Китай, обойный клей 20 кг оптом, OEM обойный клей, private label wallpaper glue, поставщик обойного клея из Китая.
