@@ -12,6 +12,8 @@ Russian mixing protocol: https://nyxun123.github.io/ru-wallpaper-glue-buyer-guid
 
 Russian customs-document guide: https://nyxun123.github.io/ru-wallpaper-glue-buyer-guides/tn-ved-wallpaper-glue-russia.html
 
+Russian starch-based glue guide: https://nyxun123.github.io/ru-wallpaper-glue-buyer-guides/starch-based-wallpaper-glue-china.html
+
 Core destination pages:
 
 - https://kn-wallpaperglue.com/ru/products/bulk-wallpaper-adhesive/
