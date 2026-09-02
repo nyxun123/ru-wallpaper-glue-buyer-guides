@@ -10,6 +10,8 @@ Russian procurement route guide: https://nyxun123.github.io/ru-wallpaper-glue-bu
 
 Russian mixing protocol: https://nyxun123.github.io/ru-wallpaper-glue-buyer-guides/how-to-mix-wallpaper-glue.html
 
+Russian customs-document guide: https://nyxun123.github.io/ru-wallpaper-glue-buyer-guides/tn-ved-wallpaper-glue-russia.html
+
 Core destination pages:
 
 - https://kn-wallpaperglue.com/ru/products/bulk-wallpaper-adhesive/
