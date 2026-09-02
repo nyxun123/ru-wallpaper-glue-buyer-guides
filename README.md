@@ -8,6 +8,8 @@ GitHub Pages: https://nyxun123.github.io/ru-wallpaper-glue-buyer-guides/
 
 Russian procurement route guide: https://nyxun123.github.io/ru-wallpaper-glue-buyer-guides/procurement-route.html
 
+Russian mixing protocol: https://nyxun123.github.io/ru-wallpaper-glue-buyer-guides/how-to-mix-wallpaper-glue.html
+
 Core destination pages:
 
 - https://kn-wallpaperglue.com/ru/products/bulk-wallpaper-adhesive/
